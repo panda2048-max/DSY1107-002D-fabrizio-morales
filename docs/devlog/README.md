@@ -1,0 +1,1 @@
+apartado de la bitacora destinada al avanse que se ira realizando a traves del semestre relacionado con el proyecto semestral
